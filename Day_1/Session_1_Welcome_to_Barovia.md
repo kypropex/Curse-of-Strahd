@@ -1,3 +1,5 @@
+# Welcome to Barovia
+
 Two days ago my brother and myself were passing trough a small village in search
 for work. Although it's been only a year since we started this business of
 bounty hunting, our progress feels slow. Alaric, mein Bruder, is a bit skeptical,
