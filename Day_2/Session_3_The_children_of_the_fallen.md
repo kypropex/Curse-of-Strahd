@@ -4,6 +4,16 @@
 *me in to the depths. I reach the darkness where I stop and two giant yellow eyes*
 *greet me. From within the depths I hear a voice:*
 
+```
+Some art able and as willing, pay
+The rigid satisfaction, death for death
+Say heavenly powers, where shall we find such love,
+Which of ye will be mortal to redeem.
+Which thy chose One sacrify flesh and soul for power.
+Or bring upon everyone's eternal damnation.
+A choice must be made! Release! Release!
+Release! 
+```
 Violently I awaken from my dream coughing up salt water, this is the first time
 I almost die from one of my dreams. Everything in it was so real so close to me
 that I fear one of them will be my undoing soon. It might be the house, or even
