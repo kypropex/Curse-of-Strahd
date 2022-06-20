@@ -5,7 +5,20 @@ in the library which was the missing pice to the servants room depth.
 This **secret room** contained a chest with a body hanging out of it, clutching
 a letter in it's hand.
 
-***insert letter***
+```
+My most pathetic servant,
+
+I am not a messiah sent to you by the Dark Powers of this land. I have not
+come to lead you on a path to immortality. However many souls you have bled on
+your hidden altar, however many visitors you have tortured in your dungeon,
+know that you are not the ones who brought me to this beautiful land. You are
+but worms writhing in my earth.  You say that you are cursed, your fortunes
+spent. You abandoned love for madness, took solace in the bosom of another
+woman, and sired a stillborn son. Cursed by darkness? Of that I have no doubt.
+Save you from your wretchedness? I think not. I much prefer you as you are.
+
+ Your dread lord and master,  Strahd von Zarovich
+ ```
 
 Next to this ominous chest there was a book shelf full of necromancy books.
 Natürlich, Alaric wanted spend as much time with them as possible, personally I
@@ -19,7 +32,7 @@ Alaric is fast asleep in the **servants quarters** and so are all of the others
 as well, the dreadful dreams await me....
 
 Every night since we started hunting he sets up an alarm spell around us, this
-will warn us if something approaches so that we have time to react. Usually 
+will warn us if something approaches so that we have time to react. Usually
 it's a "ding" sound in his head, this time it was the horrid scream that woke
 him. Something seems to have altered the way some of our magic reacts, I first
 noticed it with may magic hand which turned skeletal when I tried to console the
