@@ -47,4 +47,4 @@ place.
 Back in the **upper hallway** the girls were assisting Breker in his acquisitions
 as Alaric stepped out of the sleeping room with a "friend" on his shoulder. Die
 Ratte which he most likely conjured was his familiar, it obeyed his commands
-never leaving Alarics side unless a command was issued. 
+never leaving Alarics side unless a command was issued. Alaric then expressed his desire to study the books in the **secret library**, this alarmed me as he tends to get in to trouble even without doing complex necromancy, with these books this might lead to some very bad outcomes. There was however no swaying him, the passion with which he started to explian the different ways to resurrect creatures and the way he described that the soul doesn't matter makes me think that he will go down a darker path soon, hopefully I can still save him before this gets out of hand.
