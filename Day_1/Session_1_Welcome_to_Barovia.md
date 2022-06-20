@@ -177,7 +177,8 @@ letter I received. He told us that the flamboyant man, who I thought to be ein
 Schauspieler, is named Arrigal and is in the service of somebody (I forgot,
 it has has been a challenging day). It appears that we have been called under
 false pretenses as the letter was probably not written by ***Kolyan Indirovich***
-of whom ***Stanimir*** had a poor opinion. During this conversation, ***Stanimir*** offered me some of the best wine I had in my life, he mentioned that they do not
+of whom ***Stanimir*** had a poor opinion. During this conversation, ***Stanimir***
+offered me some of the best wine I had in my life, he mentioned that they do not
 share it with anybody else but friends and family which lead me to believe that we
 have been marked as friends by these strange people. Soon after I noticed Elona
 puking from the other cart, Alaric shouted that it is nothing serious and it has
