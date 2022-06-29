@@ -12,7 +12,7 @@ Which of ye will be mortal to redeem.
 Which thy chose One sacrify flesh and soul for power.
 Or bring upon everyone's eternal damnation.
 A choice must be made!
-Release! Release! Release! 
+Release! Release! Release!
 ```
 Violently I awaken from my dream coughing up salt water, this is the first time
 I almost die from one of my dreams. Everything in it was so real so close to me
@@ -177,5 +177,5 @@ The rest of the floor has proven to be even more dusty the the previous floor
 small tale and a chair. The **storage room** has crates and chests covered with
 white sheets, in one of the trunks we found the skeletal remains of the nurse,
 stabbed multiple times with was Alaric assumed was a knife, nothing else could
-be determined about her.As Breker observed, a hidden passage to a staircase
+be determined about her, as Breker observed, a hidden passage to a staircase
 leading down....   
