@@ -102,4 +102,59 @@ creature in the wall, which we decided was better not to disturb.
 
 Alaric insisted he wants to check out the **statue room** where we found, as
 he previously described, mossy skeletons surrounding a statue holding a glowing
-orb.    
+orb. So far this room has also proven to be the only room lit up by torches
+surroundings the statue, giving the room an even more ominous feeling of the occult.
+The assumption was that the orb is magical, which, naturally, peaked his
+interest. While Alaric, Myr, and Breker were trying to get to the orb, which
+was some way above the ground out of reach even for our dancing half-elf, myself
+and Elona focused on inspecting the skeletons. My main concern was that this
+looked like the sacrifice room that was mentioned in the letter found in the
+house, thus these skeletons might be guardians of sort. These however have seen
+chained to the walls long while ago, moss was growing on them and even the chains
+themselves were extremely rusty. In the far east corner of the room behind the
+last skeleton I barely managed to make out a old, moldy, worn wooden door.
+Prying it open was not difficult, keeping it from falling apart seemed more of
+a challenge though. It uncovered stairs leading up, hopefully back up to the
+house as climbing the stairs we cam trough is a task in it's own. I tried in
+vane to tell my companions about it, as all except Elona were to focused on getting
+the orb. It has gotten to the point were Myr had lifted Alaric on her back just
+to get to it. I told Elona I will go ahead and investigate the stairs and were
+they lead.... as I uttered the words Alaric managed to touch the glowing sphere.
+I was wrong; the room was protected but not by the skeletons. Out of nowhere
+five shadows appeared and started attacking the ones closest to the orb as they
+were clearly there to guard the unholy item.
+
+The fight ensued pretty quickly as Myr, Breker and Alaric where the closest to
+them. Unfortunately their proximity to the conflict took them by surprise,
+besonders Alaric who likes to keep his physical distance as much as possible and
+attack from a safe distance. I, however, was quick to react with my mind sliver
+on the one closest to Alaric. Although I felt it inflict some damage it was clear
+that these will prove to formidable adversaries. While taking hits Breker and Myr
+fought back with determination, but in the end Elona was the most efficient of us
+all. Her radiant spells have proven to be no match for the dark nature of these
+creatures. Alaric managed to get to a safe distance as Breker positioned himself
+in the middle of the room using his makeshift metal whip to both inflict wounds
+and pull his enemies away from the one following Alaric. Myr and myself stayed
+in the front lines fending off the majority of the shadows. I noticed during the
+fight when Alaric, Breker or even Myr got hit that they appeared to be weakened
+by the shadowy strikes, it was only when I myself got hit that I understood the
+gravity of the situation. The shadows hit drained strength with every strike,
+whit each blow it was harder to move and to carry oneself. On top of this, my
+strikes had very little effect, as they proved to be immune to the damage dealt
+by my hex and resistant to my cursed sword. In the end I did not manage to
+kill any but I did mange to prime them for Elona and Alaric. Myr handled herself
+well although by the end of it she looked the worst.
+
+It took us under a minute to dispatch of them but by the end, all of my colleagues
+were in very bad shape. As a child I had innate healing skills, which in these
+situations have proven to be vital. Alaric was already being taken care of by
+our cleric and I deiced to use my skills to help Myr up as she was clearly the
+one who needed it the most.
+
+Exploration of the stairs leading up has proven to be fruitful. At the end of the
+stairs we found a small ladder leading to a trap door, above it we found ourselves
+in the **hunting room** on the ground floor. As almost all of was were in no
+condition to carry on, we decide to go back to the room we slept in and take
+a rest for the *night(??)*. Since we have gotten here the fog has proven to
+be more then a nuisance as telling time in our surroundings is almost impossible.
+Either way... rest was sorely needed. Thus we went back up stairs...
