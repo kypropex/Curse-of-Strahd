@@ -14,7 +14,7 @@ leading directly to the place we were interested in.
 As we entered the **statue room** all of us except Myr and myself started
 exploring the rest of the room to make sure we did not miss anything which
 will give us a clue for the purpose of this place. Alaric managed to find
-something interesting regarding the statue. By its feet hidden from the seight
+something interesting regarding the statue. By its feet hidden from the sight
 by the cloak of the man the statue represented lay a **carved head of a
 Wolf**. The head was part of the original design of the statue, but it was
 still peculiar as the Wolf theme is clearly a reoccurring one since we reached
